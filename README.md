@@ -1,5 +1,4 @@
-![691426c0bee73b1c4dfbb72429d4000f1a3d130d_00](https://github.com/user-attachments/assets/2d0dae39-69c8-4e1c-b191-b89ec9700ad6)
-
+![e48880f657b9f5b3d3040490cef2eaea](https://github.com/user-attachments/assets/497e9c7e-1012-4bf7-9597-664b76551dd7)
 
 <!--
 **mad0kam/mad0kam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
