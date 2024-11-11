@@ -1,1 +1,1 @@
-![9d65c324_original](https://github.com/user-attachments/assets/1314f34e-188e-4957-bcab-006d4219d43b)
+ ![Madoka-GIF-sprites-puella-magi-madoka-magica-33548155-128-128](https://github.com/user-attachments/assets/59195ff2-ed5b-476f-ad6b-c21f6c2109dc)
