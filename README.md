@@ -1,1 +1,1 @@
-![0ba20349db892b58c9589bc74c5b4419](https://github.com/user-attachments/assets/7a682566-f7c1-4e4b-8a62-16ca96b682b8)
+![MegaHouse LookUp Evangelion Rei Ayanami Figure JAPAN OFFICIAL](https://github.com/user-attachments/assets/e2e65db2-18c0-4d00-9d6e-3b074325813e)
